@@ -1,1 +1,0 @@
-Imagenes en esta carpeta
